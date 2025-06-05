@@ -1,0 +1,1 @@
+One of the three cosmic impulses through which the transfinite will is manifested. Affirmation is the creative, active, male aspect of the will. 

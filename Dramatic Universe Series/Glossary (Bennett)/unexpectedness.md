@@ -1,0 +1,1 @@
+A distinguishing mark of [[hyparchic]] operations that have no temporal antecedents. 

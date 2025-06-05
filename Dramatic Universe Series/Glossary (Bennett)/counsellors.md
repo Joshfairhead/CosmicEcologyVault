@@ -1,0 +1,1 @@
+The third sub-group of the psychokinetic group characterzed by direct illuminations and insights.

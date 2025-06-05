@@ -1,0 +1,1 @@
+Twelve-term system in which all the characteristics of a perfect structure are coalesced and the systemic attribute is perfection. 

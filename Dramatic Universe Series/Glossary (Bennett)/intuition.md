@@ -1,0 +1,1 @@
+The recognition of meanings without the intervention of previously formed linguistic elements. Intuition is that which is given the direct contact with experience. Intuitions are the raw material of symbolism. 

@@ -1,0 +1,1 @@
+Postulate: The assumption that there is a scale of [[being]], each gradation of which forms a coherent system that can be studied in isolation from the remainder. 

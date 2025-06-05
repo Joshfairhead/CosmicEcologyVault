@@ -1,0 +1,1 @@
+The ratio of potentiality and actualisation required for maintaining the virtue of an entity constant. 

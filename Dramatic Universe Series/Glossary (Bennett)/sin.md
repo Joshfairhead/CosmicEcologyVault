@@ -1,0 +1,1 @@
+The rejection by man of his obligation to serve the purpose of his existence. The misuse of freedom latent in the human will. 

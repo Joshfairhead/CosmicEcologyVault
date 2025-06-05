@@ -1,0 +1,1 @@
+The property whereby one single unlimited will manifests itself as manifold and limited. The cosmic aspect of will. 

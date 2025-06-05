@@ -1,0 +1,1 @@
+Hypothesis: The assumption that there is a class of occasions in which entities behave as if their existence were renewed periodically in each of the three inner dimensions of [[time]], [[eternity]], and [[hyparxis]]. 

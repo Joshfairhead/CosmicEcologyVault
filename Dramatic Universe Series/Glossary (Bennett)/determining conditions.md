@@ -1,0 +1,1 @@
+The forms of universal order. The criterea that distinguish between possible and impossible situations and therefore serve to limit existence. The four determining conditions are: space, time, eternity and hyparxis. 

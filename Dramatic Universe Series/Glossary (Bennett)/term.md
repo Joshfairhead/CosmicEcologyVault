@@ -1,0 +1,1 @@
+Any element of a system that can express or manifest a specific character. Each term of a system has its own character.

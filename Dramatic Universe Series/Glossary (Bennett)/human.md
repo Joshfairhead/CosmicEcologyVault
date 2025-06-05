@@ -1,0 +1,1 @@
+The [[will]] pattern of value. Usually refers to the triad [[body]]-[[soul]]-[[spirit]].

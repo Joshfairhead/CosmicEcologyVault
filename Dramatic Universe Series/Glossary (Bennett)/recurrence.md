@@ -1,0 +1,1 @@
+The property whereby the ableness-to-be of any given whole reconciles its potentialities with its actualisations. Derives from the cyclical nature of [[hyparxis]].

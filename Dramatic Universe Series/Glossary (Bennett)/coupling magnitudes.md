@@ -1,0 +1,1 @@
+Quantities associated with the dimension of [[hyparxis]] that serve to balance the eternal and temporal elements in composite wholes of recurrences.

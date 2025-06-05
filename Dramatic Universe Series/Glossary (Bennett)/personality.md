@@ -1,0 +1,1 @@
+the existential part of the self-ood formed by environmental influences from conception but chiefly in the years from birth and puberty. 

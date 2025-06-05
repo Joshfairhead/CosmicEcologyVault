@@ -1,0 +1,1 @@
+With discrimination, one of the two properties of the human mind-stuff that permits its possessor to enter a path of accelerated transformation. 

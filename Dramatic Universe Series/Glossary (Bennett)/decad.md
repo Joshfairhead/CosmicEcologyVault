@@ -1,0 +1,1 @@
+Ten-term system, characterized by the coalescence of different modes of significance. This system allows operations of different scales to be mutually relevant. The systemic attribute is defined as integrative complementarity. 

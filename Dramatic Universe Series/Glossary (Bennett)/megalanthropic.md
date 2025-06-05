@@ -1,0 +1,1 @@
+Megalanthropy. The ascription of over-riding significance and value to human person. The epoch from 550 B.C. to A.D. 1850 during which this attitude dominated mankind. See also: [[synergic]]

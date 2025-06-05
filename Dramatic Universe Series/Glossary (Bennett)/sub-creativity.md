@@ -1,0 +1,1 @@
+Hypothesis. The assumption that there is a class of [[hypernomic]] entities that create by way of a pattern of existence which they maintain. 

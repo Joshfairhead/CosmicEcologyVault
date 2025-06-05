@@ -1,0 +1,1 @@
+Third sub-group of the psychostatic group characterised by external activity and inner passivity.

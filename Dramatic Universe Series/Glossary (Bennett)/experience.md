@@ -1,0 +1,1 @@
+The total givenness possible for all and every consciousness, human, sub-human and super-human. The definite form of the indefinite reality. 

@@ -1,0 +1,2 @@
+The highest sub-group of the [[psychokinetic]] group composed of men of the true self prior to union with the [[personal individuality]]. True initiates are purified from [[egoism]] and are capable of recieving and recognising authentic illumination.
+- St. Paul as initiate

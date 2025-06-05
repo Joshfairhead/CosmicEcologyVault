@@ -1,0 +1,1 @@
+The society of all human beings in process of transformation from selfhood to individuality. The middle society of the ideal human symbiosis of the biosphere. 

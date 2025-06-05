@@ -1,0 +1,1 @@
+The existential pattern of potentialities of a given human totality. Used in opposition to [[destiny]] which is the essential pattern.

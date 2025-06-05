@@ -1,0 +1,1 @@
+The separation of two levels in eternity. Hence apokritical interval as the measure of such seperation.

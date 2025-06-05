@@ -1,0 +1,1 @@
+The plan of history taking form in the [[hyparchic future]] in response to the foreordained purpose of creation.

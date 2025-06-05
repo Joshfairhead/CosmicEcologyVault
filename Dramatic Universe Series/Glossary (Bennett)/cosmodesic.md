@@ -1,0 +1,1 @@
+A generalized geodesic in N-dimensions. Also a null-interval.

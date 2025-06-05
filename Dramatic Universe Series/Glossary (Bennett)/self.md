@@ -1,0 +1,1 @@
+The association of [[will]] with the body and its powers. It is a necessary instrument for dealing with the material world, but must not be regarded as the seat of the man and his destiny. 

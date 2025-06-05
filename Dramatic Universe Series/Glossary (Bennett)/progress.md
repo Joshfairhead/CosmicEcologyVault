@@ -1,0 +1,2 @@
+Progress is change in the direction of enhanced significance. It can be fully defined only in systems of [[hexad]] onwards. Change in time alone cannot constitute progress as a [[hyparchic]] element must always be present. 
+- The transition from a less to a more ordered state within a given present moment is the progress of that moment. Progress in one present moment may be at the expense of regress in another. Progress is also the way of return to the perfectly ordered source. 

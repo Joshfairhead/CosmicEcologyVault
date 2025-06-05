@@ -1,0 +1,1 @@
+The entire content of any whole, i.e. both its essential nature and its existential manifestation. The human totality is all that a man is and all that he can become.

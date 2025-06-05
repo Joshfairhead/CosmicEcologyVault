@@ -1,0 +1,1 @@
+Second of the personal values. Man is drawn int action to satisfy needs of all kinds; hence need is the instrumental term in the tetrad of value-realisation. 

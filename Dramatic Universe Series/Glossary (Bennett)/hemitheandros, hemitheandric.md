@@ -1,0 +1,1 @@
+Man believed to have superhuman attributes and powers enabling him to act as intermediary between the gods and ordinary people. The hemitheandric epoch from 3200 to 800 B.C. is that of heroes and priest-kings. 

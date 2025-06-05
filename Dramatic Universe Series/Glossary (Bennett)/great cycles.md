@@ -1,0 +1,1 @@
+In human history. Periods of some 25,000 years in which decicive transformations of mans nature are observed to occur.

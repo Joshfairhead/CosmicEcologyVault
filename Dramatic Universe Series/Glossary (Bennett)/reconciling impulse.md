@@ -1,0 +1,1 @@
+The immanent [[will]] that operates to enable the univers to exist and evolke towards its destiny. The third impulse in every triad. In Vol. II, identified with the love of god.

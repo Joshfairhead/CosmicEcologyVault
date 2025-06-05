@@ -1,0 +1,1 @@
+The plan of creation that takes form as the [[hyparchic]] creative plane and becomes effectual as the eternal pattern. Foreordainment completes with [[predestination]] and [[predetermination]] the three modes of the future.

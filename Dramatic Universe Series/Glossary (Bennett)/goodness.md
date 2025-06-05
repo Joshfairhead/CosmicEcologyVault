@@ -1,0 +1,1 @@
+Coalesced value derrived by [[coalescence]] of [[conflict]], [[need]] and [[holiness]]. It is operational in character. 

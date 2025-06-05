@@ -1,0 +1,1 @@
+An idea fully given in direct experience as opposed to abstract form that is given by selection from experience.

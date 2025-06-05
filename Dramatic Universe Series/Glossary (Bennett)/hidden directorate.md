@@ -1,0 +1,1 @@
+Hypothetical group of psychoteleios men in contact with the hyparchic future and able to influence without overt intervention the course of historical events to assure the orderly progress of mankind.

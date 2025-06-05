@@ -1,0 +1,1 @@
+The levels of existence dominated by the denying factor. Existence below life. Thinghood.

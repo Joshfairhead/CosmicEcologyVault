@@ -1,0 +1,1 @@
+Communications reserved for prophets and messengers concerning the foreordained pattern of human history and cosmic purposes. 

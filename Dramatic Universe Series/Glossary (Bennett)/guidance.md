@@ -1,0 +1,1 @@
+The doctrine that the evolutionary progress, including that of mankind, requires and has received help and direction from superhuman intelligences.

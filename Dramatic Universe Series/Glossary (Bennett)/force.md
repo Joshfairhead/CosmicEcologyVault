@@ -1,0 +1,1 @@
+- The connectivity of the [[dyad]]. The basic urge to produce change.

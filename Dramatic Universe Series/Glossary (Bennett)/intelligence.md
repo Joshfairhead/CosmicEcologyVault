@@ -1,0 +1,1 @@
+The "higher mind" that is beyond ordinary human awareness. Assumed to operate in the region of the conscious and creative energies. Intelligences can be non-human, as in the [[demiurge]].

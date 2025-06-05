@@ -1,0 +1,1 @@
+A fact taken without reference to its actual or even possible arising. The forms of all possible and impossible facts are situations. 

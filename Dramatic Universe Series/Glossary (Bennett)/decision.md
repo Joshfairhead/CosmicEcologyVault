@@ -1,0 +1,1 @@
+One of the three first order connectives of the triad in which the bond of mutual relevance is established between the affirming and reconciling impulses. 

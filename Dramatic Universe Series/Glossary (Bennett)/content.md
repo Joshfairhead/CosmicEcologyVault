@@ -1,0 +1,1 @@
+The positive compenent of the dyad of meaning. Cf. context. That which is affirmed by a linguistic element. 

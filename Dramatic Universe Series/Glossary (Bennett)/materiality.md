@@ -1,0 +1,1 @@
+The objective aspect of [[being]]. Materiality is relative and subject to the single-valued order of "more and less. "

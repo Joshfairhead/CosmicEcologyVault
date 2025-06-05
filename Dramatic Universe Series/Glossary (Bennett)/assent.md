@@ -1,0 +1,1 @@
+The act whereby we experience the reality of values. Assent in the domain of values corresponds to perception in the domain of fact. 

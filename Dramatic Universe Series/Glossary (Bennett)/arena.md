@@ -1,0 +1,1 @@
+The region of transformation in any completing situation. with man it corresponds to the active life. Also domain of harmony. Symbolised in double square. 

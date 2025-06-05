@@ -1,0 +1,1 @@
+The doctrine that man exist to fulfil a purpose but owing to the hazard of existence may fail to do so.

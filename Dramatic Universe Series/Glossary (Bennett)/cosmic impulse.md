@@ -1,0 +1,1 @@
+An element of [[will]]. There are three cosmic impulses, designated [[affirmation]], [[reconciliation]] and [[receptivity]]. The cosmic impulses are always combined with triads. They may be [[essential]] or [[existential]]. 

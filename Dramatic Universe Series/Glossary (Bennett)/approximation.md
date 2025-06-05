@@ -1,0 +1,1 @@
+[[method of progressive approximation]]. The construction of concepts starting from vague outlines with subsequent gradual fillings in of details. Method that consists in deepening of meanings as opposed to accumulation of facts. 

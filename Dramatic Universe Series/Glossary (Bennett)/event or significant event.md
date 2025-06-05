@@ -1,0 +1,1 @@
+The word is used in the technical sense to distinguish [[value realisation]] from simple happening. An event has a structure and hyparchic depth. - The coalescence of a group of happenings to give a significant pattern that is more than temporal. The building bricks of history. 

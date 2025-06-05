@@ -1,0 +1,1 @@
+A situation characterized by hazard in which there is a plan or purpose to be realised, but no certainty as to whether it is probably or even possible. See [[universal drama]] (III. 290) and [[human drama]] (iii. 121) also Existence and Hazard (III 67).

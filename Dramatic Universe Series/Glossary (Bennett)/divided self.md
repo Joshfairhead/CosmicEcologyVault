@@ -1,0 +1,1 @@
+The association of will with the patterns of man's destiny and fate. Owing to the dualistic character of man's nature, he is always torn between fate and destiny and this is reflected in the divided self which has "lower" and "higher" parts in opposition.

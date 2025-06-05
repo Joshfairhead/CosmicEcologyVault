@@ -1,0 +1,1 @@
+Groups of men of the [[psychoteleios]] and [[psychokinetic]] orders engaged in the transmission of higher energies and wisdom to mankind. 

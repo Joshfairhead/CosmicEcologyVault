@@ -1,0 +1,1 @@
+An independent set of numbers, one or more of which sets constitutes a manifold.

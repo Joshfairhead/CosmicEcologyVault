@@ -1,0 +1,1 @@
+A family of skew parallels given by the relationship W = V + Ø1U1 (subscripts) is called a pencil. V is the guide vector and U1 (subscript) the null-vectors of the pencil, and Ø1 the divergences.

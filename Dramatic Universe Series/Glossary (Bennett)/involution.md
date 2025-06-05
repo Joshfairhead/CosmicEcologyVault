@@ -1,0 +1,2 @@
+The trend from unity towards multiplicity. The passive element in the universal process. Synonymous with [[expansion]]. 
+- The operation of [[will]] whereby the unity of the transfinite [[will]] is transformed by successive stages into the multiplicity of wills in the existing universe. Involution is also used more generally for all transformations leading from unity to multiplicity: Hence involution is also called the law of [[expansion]].

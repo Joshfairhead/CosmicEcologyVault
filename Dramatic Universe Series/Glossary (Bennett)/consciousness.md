@@ -1,0 +1,1 @@
+The subjective aspect of [[being]]. The experienced togetherness of situations. **Consciousness is relative**, though assumed to be universal and omnipresent.

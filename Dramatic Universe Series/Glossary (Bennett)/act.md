@@ -1,0 +1,1 @@
+The coalescence of the impulses of a triad whereby a dynamic situation is engendered.

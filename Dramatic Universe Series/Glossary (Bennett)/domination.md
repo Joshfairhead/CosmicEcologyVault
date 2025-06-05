@@ -1,0 +1,1 @@
+The eleventh category. The element of experience in which we recognise influence that can evoke creative activity without itself being affected thereby. 

@@ -1,0 +1,1 @@
+The coalescence of selfhood and individuality. There are three stages corresponding to the three modes of individual [[will]].

@@ -1,0 +1,1 @@
+Space extended composite whole. Quadripotent entity having parts. 

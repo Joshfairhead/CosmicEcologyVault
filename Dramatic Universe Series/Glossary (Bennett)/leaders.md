@@ -1,0 +1,1 @@
+Fourth sub-group of the [[psychostatic]] group. Men and women are not in process of transformation but active through self-assertion. 

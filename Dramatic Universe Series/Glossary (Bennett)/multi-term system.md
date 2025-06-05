@@ -1,0 +1,1 @@
+A system having a characteristic quality arising from the harmony of its terms. 

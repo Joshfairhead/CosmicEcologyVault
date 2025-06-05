@@ -1,0 +1,1 @@
+The property whereby different levels of existence are - with rare and improbable exceptions - closed to one another. See also [[stratification of existence]]. 

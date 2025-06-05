@@ -1,0 +1,1 @@
+The hypothetical entity free from eternity-blindness and therefore able to set up a six dimensional representation framework by direct measurement. 

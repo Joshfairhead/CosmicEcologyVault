@@ -1,0 +1,1 @@
+An assembly of elements intermediate between a system and a society. It can be regarded as a system of systems. 

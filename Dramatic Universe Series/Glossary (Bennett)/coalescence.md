@@ -1,0 +1,1 @@
+The bond of being where by functionally compatible but distinct elements are fused into unity by an act of will

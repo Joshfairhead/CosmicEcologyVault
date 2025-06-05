@@ -1,0 +1,1 @@
+The first sub-group of the psychotelios group. It is composed of complete individuals capable of exercising creative intelligence. 

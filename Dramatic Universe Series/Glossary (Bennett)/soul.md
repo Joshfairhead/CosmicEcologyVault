@@ -1,0 +1,2 @@
+The unified [[mind-stuff]] produced by the [[coalescence]] of mental elements through an act of [[will]]. Note that the mind is only a [[compresence]], where as the soul is a [[coalescence]] of elements and energies.
+- The [[coalescence]] of human mind-stuff to produce a stable entity independent of the physical body. 

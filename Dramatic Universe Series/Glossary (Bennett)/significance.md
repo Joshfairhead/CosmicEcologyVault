@@ -1,0 +1,1 @@
+The distinguishing mark of an entity. The systemic attribute of the [[pentad]]. Significance is not attributable to systems without a central term. 

@@ -1,0 +1,1 @@
+The means of describing occasions in mathematical terms. A numerical system relating phenomena to facts. 

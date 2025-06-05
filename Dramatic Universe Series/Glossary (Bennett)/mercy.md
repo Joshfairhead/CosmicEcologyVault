@@ -1,0 +1,1 @@
+Coalesced value derrived by [[coalescence]] of [[concern]], [[discrimination]] and [[love]]. The third term of the tetrad of coalesced values. 

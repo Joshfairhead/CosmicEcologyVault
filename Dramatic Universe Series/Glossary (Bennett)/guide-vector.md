@@ -1,0 +1,1 @@
+The non-null vector in a pencil of skew parallels. In W = V + ØU, V is called the guide-vector. 

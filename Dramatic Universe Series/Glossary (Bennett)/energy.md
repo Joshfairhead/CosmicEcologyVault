@@ -1,0 +1,1 @@
+All states of the prime substance [[hyle]] are taken to be kinds of energy and therefore capable of operational activity or work. Used for all states of hyle with special reference to the different levels of existence. Thus, material energies are distinguished from vital energy and both from cosmic energies. 

@@ -1,0 +1,1 @@
+The one-term system which is the immediate delivery of any finite experience. It is characterised by diversity in unity and unity with universality as its systemic attribute. The monad is recognised by its character and its content. 

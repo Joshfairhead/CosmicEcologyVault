@@ -1,0 +1,1 @@
+The response of all existence to the creative affirmation. The second impulse in every triad. The initiating factor in evolution and progress. 

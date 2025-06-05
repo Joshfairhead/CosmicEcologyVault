@@ -1,0 +1,1 @@
+An occasion that enters experience as temporal phenomenon. The selection for a given centre of experience of one out of a quasi-infinite number of potential situations, according to the condition of successiveness, irreversibility and maximum probability, i.e. of time.

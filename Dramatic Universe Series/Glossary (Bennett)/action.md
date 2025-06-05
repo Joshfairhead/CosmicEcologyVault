@@ -1,0 +1,1 @@
+One of the three basic properties of existence, the others being inertial mass and electric charge. Associated with [[hyparxis]] and essentially recurrent. Given by the guide-vector of a [[delta-pencil]]. The simplest kind of charge in which there is no gain or loss of either energy or order.

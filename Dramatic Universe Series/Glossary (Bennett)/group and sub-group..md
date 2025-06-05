@@ -1,0 +1,1 @@
+General expression of societies which occupy a particular place in the human symbiosis. There are three groups and twelve subgroups in the ideal human society. Activity as spiritual technique.

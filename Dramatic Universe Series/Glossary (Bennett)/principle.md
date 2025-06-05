@@ -1,0 +1,1 @@
+Statement elucidating one of the categories and indicating its application to the inquiry. 

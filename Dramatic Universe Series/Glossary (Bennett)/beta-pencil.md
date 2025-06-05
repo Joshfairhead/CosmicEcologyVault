@@ -1,0 +1,1 @@
+An intransitive family of skew-parallel pencils having k + j -2 degrees of freedom. Used to represent time.

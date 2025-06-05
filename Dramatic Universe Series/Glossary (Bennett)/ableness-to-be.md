@@ -1,0 +1,1 @@
+The property common to all entities, though in varying degrees, of existing independently. Associated with [[hyparxis]] it is single valued and expressible in numerical terms. Ableness-to-be is also the link between the eternal pattern and the temporal actualisation. The inner reconciling principle of every existing whole.

@@ -1,0 +1,1 @@
+The condition of [[psychokinetic]] selves both during life and after the first [[death]], i.e. until attainment of individuality. 

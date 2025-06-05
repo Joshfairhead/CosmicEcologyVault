@@ -1,0 +1,1 @@
+Hypothesis: The assumption that there is a class of entities that though incapable of independent existence, are nevertheless alive in so far as they can resist degeneration at the expense of their environment. 

@@ -1,0 +1,1 @@
+The intersection of the potential and actual states of a given whole. Presence is governed by the determining condition of space.

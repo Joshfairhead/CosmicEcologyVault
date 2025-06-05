@@ -1,0 +1,1 @@
+A vector the components of which do not vanish when referred to the inner and outer determining conditions, but which has zero magnitude. 

@@ -1,0 +1,1 @@
+The third category of value. By this, value experience becomes a bond of mutual relevance.

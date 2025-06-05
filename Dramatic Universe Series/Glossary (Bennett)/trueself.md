@@ -1,0 +1,1 @@
+The central point of every entity capable of responsible independent action. This self requires the inner support of an associated existence. 

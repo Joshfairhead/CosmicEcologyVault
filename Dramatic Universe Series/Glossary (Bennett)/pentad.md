@@ -1,0 +1,3 @@
+- The five-term system which manifests the qualities of spirit. The pentad is characterised by a central nucleus and inner and outer pairs of opposites. This gives it a special dynamis called the reflux of spirit
+- Five-term system with attributes of [[significance]], [[potentiality]] and [[meaning]]
+- Gurdjieffs: Trogoautoegocrat

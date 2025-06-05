@@ -1,0 +1,1 @@
+The body of an organism regarded as a psysico-chemical mechanism.

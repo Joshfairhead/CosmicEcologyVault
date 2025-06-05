@@ -1,0 +1,2 @@
+The process of spiritualisation of existence and the realisatio of value. In man it is the transition from selfhood to individuality. 
+- The kind of process in which there is cooperation between entities of different levels to produce a higher degree of order within the common present moment they share. 

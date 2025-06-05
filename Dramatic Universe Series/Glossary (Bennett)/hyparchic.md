@@ -1,0 +1,1 @@
+From the Greek hyparcho "make a beginning" – the creative future

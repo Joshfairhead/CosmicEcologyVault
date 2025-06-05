@@ -1,0 +1,1 @@
+The distance between two points contiguous in the universal framework but separated when referred to the inner and outer determining conditions of an even whole. 

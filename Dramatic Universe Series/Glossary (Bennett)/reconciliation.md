@@ -1,0 +1,1 @@
+The third [[cosmic impulse]]; one of the three elements of [[will]] that has the qualities of [[freedom]], [[harmony]] and [[love]]. It is always manifested in a triad with the two other impulses. In its existential mode the third impulse is neutral and connective. 

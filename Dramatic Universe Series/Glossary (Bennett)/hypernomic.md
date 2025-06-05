@@ -1,0 +1,1 @@
+The levels of existence dominated by the affirmative factor. Existence beyond life.

@@ -1,0 +1,1 @@
+A process within the present moment that is directed towards a definite end-point and the maximum expression of a particular pattern of potentialities. 

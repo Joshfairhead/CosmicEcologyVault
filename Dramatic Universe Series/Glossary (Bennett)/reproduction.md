@@ -1,0 +1,1 @@
+Hypothesis: The assumption that there is a class of entities that, though incapable of self-regulation, are nevertheless able to reproduce their kind. 

@@ -1,0 +1,1 @@
+Closest approximation to pattern realisable in a given environment. 

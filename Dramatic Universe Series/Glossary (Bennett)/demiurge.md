@@ -1,0 +1,3 @@
+Vol. 2: There is a class of cosmic essences - called demiurges - that is responsible for maintaining the universal order, especially at the planetary level, where existence is contingent and hazardous. These essences have a threefold nature, the nucleus of which has a bodily support, composed of sensitive energy beyond the reach of human sense perception. 
+
+Vol. 3: A mode of being associated with an intelligence higher than human with a far greater present moment. 

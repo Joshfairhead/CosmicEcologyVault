@@ -1,0 +1,1 @@
+Hypothesis: The assumption that there is a class of [[hypernomic]] entities that dominate the creative activity of the universe without participating in it. 

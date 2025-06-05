@@ -1,0 +1,1 @@
+The [[tripotent]] state of the [[hyle]]. Comprises protons, neutrons, nucleons, and heavy mesons. 

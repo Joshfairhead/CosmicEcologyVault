@@ -1,0 +1,1 @@
+Society in which the relevance of the whole to its environment must be taken into account. Mankind is a symbiosis within the biosphere. 

@@ -1,0 +1,1 @@
+Universal value, second of the tetrad, having an instrumental character as the highest spiritualising influence within the limitations of the existing world. 

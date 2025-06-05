@@ -1,0 +1,3 @@
+The field of experience of any finite self, individual or society. The present moment is correlative to the [[will]] that embraces it. It is the field within which that [[will]] can operate. 
+
+The field of operation of a [[will]]. The present moment is a state of incessant flux under influences entering from sources that we call '[[past]]', '[[future]]', '[[form]]', '[[pattern]]', '[[decision]]', '[[freedom]]', i.e. the determining conditions of [[time]], [[eternity]] and [[hyparxis]]. The present moment varies in extent and duration according to the strength or weakness of its presiding [[will]]. 

@@ -1,0 +1,2 @@
+The activity whereby the transformation of the individual is harmonised with the evolution of mankind. Also called the "Great Work".
+- THE GREAT WORK. The operation whereby the deviations and distortions in humanity's progress towards fulfilling the aim of existence are rectified and the evolution of mankind sustained. 

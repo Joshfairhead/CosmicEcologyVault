@@ -1,0 +1,1 @@
+A body of beliefs and practices believed to have originated in the Arctic Circle about 12,000 years ago and based on the sense of dependence on a divine being to deliver the world from the darkness of the winter. This afterwards evolved towards a doctrine of divine salvation and hence to the Christian doctrine of redemption.

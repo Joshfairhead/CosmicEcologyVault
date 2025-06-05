@@ -1,0 +1,1 @@
+Operations of [[will]] where positive and negative triads produce opposite and equal effects, thus being without result. 

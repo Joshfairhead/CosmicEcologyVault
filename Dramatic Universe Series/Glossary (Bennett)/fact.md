@@ -1,0 +1,1 @@
+Experience of the functional order. Opposed to value. Fact derived from experience by way of reduction. Cf. also homogeneity of fact

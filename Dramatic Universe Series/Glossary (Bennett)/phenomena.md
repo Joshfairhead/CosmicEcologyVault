@@ -1,0 +1,1 @@
+Phenomena are knowable and when known are facts. Phenomena also enter value judgements as new material. 

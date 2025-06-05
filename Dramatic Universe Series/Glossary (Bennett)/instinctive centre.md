@@ -1,0 +1,1 @@
+The seat of the [[will]] associated with the organism in man and the higher animals. Also called the instinctive "brain". 

@@ -1,0 +1,1 @@
+Galactic existence. Domination of creativity. 

@@ -1,0 +1,1 @@
+The first sub-group of the psychostatic group characterized by absence of initiative both inwardly and outwardly, but nevertheless capable of transformation.

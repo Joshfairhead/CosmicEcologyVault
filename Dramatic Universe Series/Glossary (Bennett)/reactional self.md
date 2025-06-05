@@ -1,0 +1,1 @@
+The second state of the selfhood in man characterised by polarity of positive and negative influences, dominated by likes and dislikes. 

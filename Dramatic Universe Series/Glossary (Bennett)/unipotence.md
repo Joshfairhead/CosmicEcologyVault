@@ -1,0 +1,1 @@
+The undifferentiated ground state of hyle in which the sole possibility is to enter determinate existence. Existence according to the postulate of existential indifference. 

@@ -1,0 +1,1 @@
+It is taken as self-evident delivery of any possible experience that the world and every part of it presents itself as a whole that is diverse and imperfect and yet always shows some degree of organisation. This is the basic axiom of systematics. 

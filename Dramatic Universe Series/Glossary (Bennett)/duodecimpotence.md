@@ -1,0 +1,1 @@
+The highest gradation of hypernomic existence. The universe as an autocratic whole. 

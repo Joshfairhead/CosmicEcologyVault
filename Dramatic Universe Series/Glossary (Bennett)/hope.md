@@ -1,0 +1,1 @@
+First of the tetrad of personal values. The starting point of transformation. Mark of the psychokinetic candidate.

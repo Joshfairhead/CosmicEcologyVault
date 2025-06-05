@@ -1,0 +1,1 @@
+The determining condition of presence. Represented by three gamma-pencils.

@@ -1,0 +1,1 @@
+The state of being conditioned by [[space]], [[time]], [[eternity]] and [[hyparxis]], but especially the time like actualising aspect of. [[being]]. Also used as the complementarity of [[essence]] which is the unconditioned component of any set of potentialities, e.g. in a human being. Existence is hazardous. 

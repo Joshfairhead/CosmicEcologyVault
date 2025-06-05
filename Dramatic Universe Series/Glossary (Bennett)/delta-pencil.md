@@ -1,0 +1,1 @@
+An intransitive family of skew-parallels having one degree of freedom cyclic in character. Suitable for the representation of [[hyparxis]].

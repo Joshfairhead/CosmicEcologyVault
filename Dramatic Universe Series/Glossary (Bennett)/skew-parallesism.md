@@ -1,0 +1,1 @@
+The property whereby two vectors that do not diverge may nevertheless have nonidentical components. See [[pencils]].

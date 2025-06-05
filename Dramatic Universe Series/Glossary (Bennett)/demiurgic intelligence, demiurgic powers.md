@@ -1,0 +1,1 @@
+A level of being superior to man in consciousness and creativity. The instruments of the universal individuality whereby the evolution of life on the earth has been aided and guided within the framework of natural laws. 

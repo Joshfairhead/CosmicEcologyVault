@@ -1,0 +1,2 @@
+- intransitive. A family of skew parallels, in which the guide-vector is unique. 
+- transitive. A family of skew-parallels, in which the guide-vector can be any member of the family.

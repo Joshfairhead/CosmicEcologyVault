@@ -1,0 +1,1 @@
+The nine-term system and its [[symbol]]. The ennead has the systemic attribute of permitting the harmonious co-development of independent processes. 

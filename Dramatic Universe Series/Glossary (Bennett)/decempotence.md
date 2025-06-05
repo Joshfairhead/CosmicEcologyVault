@@ -1,0 +1,1 @@
+The second gradation of hypernomic existence. The sun and other starc. Existenc according to the hypothesis of creativity.

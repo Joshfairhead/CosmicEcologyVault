@@ -1,0 +1,1 @@
+The absolutely subjective and therefore non-material source of all experience. Spirit pervades all existence. It flows back through the [[essence-classes]]. Spirit is too concrete to be associated with lower than the [[pentad]]. Spirit is one of the three [[divine hypostasis]]

@@ -1,0 +1,1 @@
+The pattern of realisation. Applied to a person or a society. In man, the destiny is imprinted in the soul-stuff at conception. To be distinguished from [[fate]]. 

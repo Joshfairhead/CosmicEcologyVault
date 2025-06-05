@@ -1,0 +1,1 @@
+In the path of accelerated transformation there are various ways corresponding to the basic distinction of human nature. 

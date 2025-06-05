@@ -1,0 +1,2 @@
+Every existing entity is characterised by a unique combination of potentialities; these constitute the eternal pattern. Owing to the properties of [[time]], the pattern can never be completely actualised; but it is preserved eternally and repeated in [[hyparxis]].
+- The structure of potentialities that setus up an organising field in the present moment. The link between the hyparchic plan and its temporal actualisation.

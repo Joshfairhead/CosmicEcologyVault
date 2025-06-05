@@ -1,0 +1,1 @@
+A transitive family of [[skew-parallels]] having the property of total linkage required for the representation space. 

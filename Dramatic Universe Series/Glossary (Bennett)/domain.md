@@ -1,0 +1,1 @@
+An aspect or segment of experience apprehended by a group of instruments of faculties and giving a consistent but not adequate representation of the whole. The domain of fact is apprehended by sense experience and mental constructions. The domain of value is apprehended in the fact of realising it. 

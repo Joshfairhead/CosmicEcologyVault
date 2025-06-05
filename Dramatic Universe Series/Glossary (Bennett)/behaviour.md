@@ -1,0 +1,1 @@
+The [[objective]] aspect of [[function]]. Pattern of man. Percieved, belongs to the zone of [[material energy]]. [[transformation]].

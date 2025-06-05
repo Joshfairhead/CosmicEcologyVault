@@ -1,0 +1,1 @@
+THe first category of value where the value experience is wholly within the subjective pole.

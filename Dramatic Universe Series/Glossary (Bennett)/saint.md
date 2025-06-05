@@ -1,0 +1,1 @@
+The second sub-group of the [[psychoteleios group]] characterised by direct communication with universal individuality and access to creative energy. 

@@ -1,0 +1,2 @@
+The measure of the potentiality of an entity or system for diversity of actualisation. It is related to entropy S by the formula J = S-S0/S1-S0 (subset numbers). 
+Virtue thus defined varies between zero and unity. Unity signifies that state of maximum potentiality. 

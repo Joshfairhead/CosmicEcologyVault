@@ -1,0 +1,1 @@
+The particular state. The element in every whole that is capable of relatedness. Existence according to the hypothesis of identical recurrence. 

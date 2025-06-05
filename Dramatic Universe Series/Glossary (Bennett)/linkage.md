@@ -1,0 +1,1 @@
+The spiritual connection between essences by which all support and are supported by others. Linkage is also the connection of food; eating and being eaten. 

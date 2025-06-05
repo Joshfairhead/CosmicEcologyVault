@@ -1,0 +1,1 @@
+Category: The second category. The element of experience that enables us to recognise connections and disjunctions. Hence also forces. Cf. [[dyad]]

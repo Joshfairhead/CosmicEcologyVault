@@ -1,0 +1,1 @@
+The society of all human beings who have atained individuality and hence independence of the physical body. This group transmits into the human symbiosis the influences needed for the evolution of mankind towards perfection.

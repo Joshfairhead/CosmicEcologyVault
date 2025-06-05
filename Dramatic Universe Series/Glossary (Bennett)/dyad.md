@@ -1,0 +1,1 @@
+A pair of wholes distinguishable in at least one characteristic. Two-term system in which the mutual relevance of the elements produces complementarity and hence a force. 

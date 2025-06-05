@@ -1,0 +1,1 @@
+The total existence of a corpuscle or other entity in time and eternity corresponding to one cycle of recurrence in [[hyparxis]].

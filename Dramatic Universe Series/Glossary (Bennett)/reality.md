@@ -1,0 +1,1 @@
+Indeterminate term used to designate all that exist or can exist or even hypothetical being below or beyond existence. Reality includes both phenomenal and non-phenomenal being if such there be. 

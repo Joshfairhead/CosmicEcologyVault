@@ -1,0 +1,1 @@
+The lower motivational term of the tetrad. It is often the raw material out of which an activity is fashioned.

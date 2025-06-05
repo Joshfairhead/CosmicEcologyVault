@@ -1,0 +1,1 @@
+The second sub-group of the [[psychokinetic]] group. The highest level of untransformed man. 

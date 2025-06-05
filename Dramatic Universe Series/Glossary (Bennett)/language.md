@@ -1,0 +1,1 @@
+Types: [[sign]], [[symbol]] and [[gesture]], also [meaning]. 

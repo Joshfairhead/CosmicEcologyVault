@@ -1,0 +1,1 @@
+Organised repitition as condition of autonomic existence. 

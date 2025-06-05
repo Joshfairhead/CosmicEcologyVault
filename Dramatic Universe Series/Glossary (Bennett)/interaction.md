@@ -1,0 +1,1 @@
+The simplest kind of change which involves exchanges of energy. One of the six fundemental laws

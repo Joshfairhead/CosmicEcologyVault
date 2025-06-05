@@ -1,0 +1,3 @@
+The questions that really matter to man were asked long ago, and we are still no further to answering them.  Our quest is the secret of human destiny. It is unknown. There are no precise or final answers.
+
+Scientist and philosophers have tried to be precise. But we need words that relate to our uncertainty and indecision. Religion has also sought ‘the absolute’.  In the social and political, we have also looked for the ‘ideal’. Man has tended to see himself as ‘the centre of everything’. We most abandon this absolute view. Uncertainty is everywhere.

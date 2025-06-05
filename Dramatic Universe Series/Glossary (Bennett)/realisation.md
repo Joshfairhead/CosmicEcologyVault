@@ -1,0 +1,3 @@
+The transition from abstract to concrete. Thus fact and value, which as [[dyad]] are abstraction, become concrete by entering into a triad with [[harmony]]. [[will]], which is abstract as a triad, is realised by entering into a [[tetrad]] with being. Being as a tetrad is realised by the pentad of the spirit. The ultimate realisation is the mutual completion in unending concreteness of all independent entities in existence. 
+
+The end-point of transformatio and, hence, coalescence of fact and value in harmony, whereby existence and essence are unified in being free from limitation in space and time. 

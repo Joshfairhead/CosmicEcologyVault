@@ -1,0 +1,1 @@
+Living according to the rules and principals that conform to cosmic principles and to the requirements of human evolution enables the mind to develop to soul and from soul to individuality. This is called the path of objective morality. 

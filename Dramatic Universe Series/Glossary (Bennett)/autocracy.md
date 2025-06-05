@@ -1,0 +1,1 @@
+The twelfth category. The element of experience in which we recognise an affirmation that is independent of any superior affirmation

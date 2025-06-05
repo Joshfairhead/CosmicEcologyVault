@@ -1,0 +1,3 @@
+The form in which we experience phenomena. 
+- The self-limitation of the [[will]] in the determination of possible situations. The totality of determining conditions of [[space]], [[time]], [[eternity]] and [[hyparxis]].
+- LAWS: [[The Postulate of the Universal Validity of Framework Laws]]. The assumption that a set of criteria can be found to distinguish possible from impossible situations and that these criteria hold good for all levels of existence. 

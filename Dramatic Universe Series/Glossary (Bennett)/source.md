@@ -1,0 +1,1 @@
+Term designation of tetrad. There are two motivational and two operational sources in every activity. 

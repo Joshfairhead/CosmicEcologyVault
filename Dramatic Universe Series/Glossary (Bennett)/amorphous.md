@@ -1,0 +1,1 @@
+The state of pre-crystalline earth. The first stage of evolution towards life. 

@@ -1,0 +1,1 @@
+Distinguished as (a) associative, (b) logical and (c) supra-logical. Logical thinking polar.

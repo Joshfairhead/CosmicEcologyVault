@@ -1,0 +1,1 @@
+The [[hypernomic]], [[autonomic]] and [[hyponomic]] modes of existence as the ultimate relatedness of the universe. 

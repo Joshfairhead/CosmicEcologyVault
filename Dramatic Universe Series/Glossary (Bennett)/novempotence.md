@@ -1,0 +1,1 @@
+The first graduation of hypernomic existence. Planets. Existence according to the hypothesis of sub-creativity. The world of patterns. 

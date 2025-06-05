@@ -1,0 +1,1 @@
+The septempotent entity existing according to the pattern of a species.

@@ -1,0 +1,2 @@
+The seperation of three elements of body, soul and spirit. Two deaths are distinguished; the first separates the soul-stuff from body and the second liberates the [[will]] from soul-stuff.
+- and resurrection of Jesus. 

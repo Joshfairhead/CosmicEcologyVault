@@ -1,0 +1,1 @@
+The operation of will by which the prime creative act is reproduced throughout the cosmos. One of the three term characters of every triad. Cf. also Laws and Impulses

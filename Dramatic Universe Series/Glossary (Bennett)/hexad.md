@@ -1,0 +1,1 @@
+The system that allows of acts of [[will]] that are independent and yet produce a coalescence compatible with the conditions of existence. The systemic attribute of coalescence gives rise to events. 

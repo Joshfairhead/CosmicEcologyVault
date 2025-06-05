@@ -1,0 +1,1 @@
+Picturesque description of the operations by which the disordering effect of temporal succesion is diminished, neutralised or overcome. 

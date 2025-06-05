@@ -1,0 +1,1 @@
+The property of space extendet entities (in general composite wholes) which makes them appear rigid to non eternity-blind observer, but plastic to Q.

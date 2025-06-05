@@ -1,0 +1,1 @@
+The energies, sensitive and conscious, that are the material of soul-formation. These energies in man are the bearers of memories and other traces of the past and also the expectations and patterns of the future. 

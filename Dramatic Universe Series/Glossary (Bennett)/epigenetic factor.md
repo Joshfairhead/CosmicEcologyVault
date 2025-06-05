@@ -1,0 +1,1 @@
+The hyparchic factor that adjusts the primary development and subsequent existence of an organism to eternal pattern. 

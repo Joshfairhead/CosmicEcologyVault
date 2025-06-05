@@ -1,0 +1,1 @@
+Change in the present moment that conforms to an orderly pattern and yields enduring objects. 

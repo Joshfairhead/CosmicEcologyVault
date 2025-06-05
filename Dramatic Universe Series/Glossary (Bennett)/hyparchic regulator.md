@@ -1,0 +1,1 @@
+The sensitive mechanism by which the physiological organism is adjusted to environmental changes. 

@@ -1,0 +1,1 @@
+A transitive family of skew-parallels having one degree of freedom. used in the representation of eternity. 

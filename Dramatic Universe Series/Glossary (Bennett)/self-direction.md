@@ -1,0 +1,1 @@
+Hypothesis. The assumption that there is a class of entities that are individuals in respect of the power of self-direction. 

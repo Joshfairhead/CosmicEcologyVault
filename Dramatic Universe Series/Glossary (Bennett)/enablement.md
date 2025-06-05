@@ -1,0 +1,1 @@
+The operation whereby [[will]] in the [[hyparchic]] future and unattached to existence makes possible transformations within the present moment.

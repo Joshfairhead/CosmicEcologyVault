@@ -1,0 +1,1 @@
+The property of self-sufficient completeness. Concreteness has degrees. Ewery system has a degree of concreteness that corresponds to the number of independent, mutually necessary terms of which the system consists. Concreteness is a measure of "reality".

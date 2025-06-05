@@ -1,0 +1,1 @@
+The property whereby any whole contains its own potentialities and its mm history. Togetherness is a measure of being.

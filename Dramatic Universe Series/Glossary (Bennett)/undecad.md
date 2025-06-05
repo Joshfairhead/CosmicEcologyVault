@@ -1,0 +1,1 @@
+see [[synergism]]. Eleven-term system.

@@ -1,0 +1,1 @@
+The Bipotent state of the hyle. Comprises electrons, positrons, photons, neutrinos and μ-mesons (mu). [[bipotence]]

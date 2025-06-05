@@ -1,0 +1,1 @@
+Systemic attribute of dodecad which exemplifies all the characters with a given region of experience. 

@@ -1,0 +1,1 @@
+The third sub-group of the [[psychoteleios]] group characterised by union with the universal individuality and two-way communication (Revelation) with the cosmic individuality. 

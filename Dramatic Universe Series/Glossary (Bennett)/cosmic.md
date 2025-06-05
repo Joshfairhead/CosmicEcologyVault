@@ -1,0 +1,3 @@
+An adjective used to indicate qualities that transcend the limitations of existence. Cosmic to be distinguished from universal, that applies to all existence but not beyond, and also from transfinite, that refers to that which is beyond qualitative distinctions. 
+- INDIVIDUALITY The supreme will manifesting in the universe as an independent source (Cf. Vol II) In the Vol 4, is identified with Chirst, the Son of God.
+- WHOLENESS. Hypothesis. The assumption that the existing universe can be regarded as a hypernomic entity with affirmative power

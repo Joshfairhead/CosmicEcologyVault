@@ -1,0 +1,1 @@
+The [[hyparchic regulator]] whereby the biospheric pattern determines the origin and existence of species and their material relationships. 

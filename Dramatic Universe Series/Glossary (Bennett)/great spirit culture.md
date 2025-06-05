@@ -1,0 +1,1 @@
+All ways of life founded on belief on a supreme - generally impersonal - spirit power that is the source of order and that can be invoked by magic and ritual: originated in Far East and spread to America and most parts of the wold, though usually combined with other beliefs.

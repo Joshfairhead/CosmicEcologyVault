@@ -1,0 +1,1 @@
+The foreordained structure which all existence is set to realise, also applied to any finite situation including human destiny.

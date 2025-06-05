@@ -1,0 +1,1 @@
+Used in the special sense of an ordering process - the systemic attribute of the tetrad - the elementary state of transformation. 

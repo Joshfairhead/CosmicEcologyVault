@@ -1,0 +1,1 @@
+System O-M-R. The human observer O, together with his measuring instruments M, all rigidly attached to the quasi-rigid body R

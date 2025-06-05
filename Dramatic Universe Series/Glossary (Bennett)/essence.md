@@ -1,0 +1,3 @@
+The property of being oneself and not other. The intrinsic possibility of being real that resides in every entity. The antithesis of existence. The spiritual element that determines potentiality. 
+- The pattern of potentialities associated with an entity. Essence is contrasted with existence as that which ought to be rather than that which is. In realisation the two coalesce. 
+- CLASS: A segment of universal being characterised by a common set of spiritual potentialities. Thus plants, animals and men are distinct essence-classes. 

@@ -1,0 +1,3 @@
+Value is the element of experience by which we recognize distinctions of interest. It is not fact and is therefore unknowable. Value implies [[hazard]] and [[freedom]]. 
+- An element of experience that cannot be apprehended as knowledge v. assent. Value an essential quality. Value is not fact and therefore it is impossible, yet real. 
+- The property by which existence is drawn towards meaning and motivation. There are twelve categories of value. 
