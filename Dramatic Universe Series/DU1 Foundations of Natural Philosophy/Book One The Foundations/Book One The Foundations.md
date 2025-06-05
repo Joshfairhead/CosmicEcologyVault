@@ -1,7 +1,7 @@
 
 ![[Part 1 Metaphysics Preface]]
 
-![[Part 2 Epistemology]]
+![[Part 2 Epistemology Prefex]]
 
 ![[Part 3 Methodology]]
 
