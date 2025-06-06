@@ -1,4 +1,4 @@
-The affirmative content of all experience. Will is the source of the "how" ond "why" of the universe. 
+The affirmative content of all experience. Will is the source of the "how" and "why" of the universe. 
 - Will is relatedness as a dynamic quality of experience. Since relatedness requires three independent terms, [[will]] is associated with the [[triad]] it assumed that all relatedness has one common source, hence that there is one transfinite [[will]]. All '[[will]]s' derive from the source by its own self-limitation. 
 - The [[affirming]] impulse in the [[triad]] with [[being]] and [[function]]. The notion (as developed in Vol. II.) is that of one supreme [[will]] that limits its own operation by fragmentation on all the levels of existence. 
 - The active principal in the [[triad]]: [[function]]-[[being]]-[[will]]. The mark of individuality. The sole power able to convert a [[compresence]] into a [[coalescence]]. 
