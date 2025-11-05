@@ -1,1 +1,1 @@
-A set of independent and yet mutually necessary terms. Everysystem has characteristic qualities. System associated with the notion of progressive concreteness. Systems denoted by Greek words, e.g. monad, dyad, triad, tetrad, pentad, etc.
+A set of independent and yet mutually necessary terms. Every system has characteristic qualities. System associated with the notion of progressive concreteness. Systems denoted by Greek words, e.g. monad, dyad, triad, tetrad, pentad, etc.
