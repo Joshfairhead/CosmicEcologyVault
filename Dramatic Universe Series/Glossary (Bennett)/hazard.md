@@ -1,1 +1,1 @@
-The character of [[existence]] which makes it dramatic. Hazard is taken to be endemic in all existence on account of the principle that there is no place for all potentialities to become actual in any finite present moment. 
+The character of [[Dramatic Universe Series/Glossary (Bennett)/existence]] which makes it dramatic. Hazard is taken to be endemic in all existence on account of the principle that there is no place for all potentialities to become actual in any finite present moment. 

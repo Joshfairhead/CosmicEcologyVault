@@ -1,1 +1,1 @@
-The state of self-hood in which the satisfaction of [[egoism]] is taken to be the sole aim of [[existence]]. When a soul is formed on the basis of this aim solely, it is cut off from the evolutionary process and lost. 
+The state of self-hood in which the satisfaction of [[egoism]] is taken to be the sole aim of [[Dramatic Universe Series/Glossary (Bennett)/existence]]. When a soul is formed on the basis of this aim solely, it is cut off from the evolutionary process and lost. 

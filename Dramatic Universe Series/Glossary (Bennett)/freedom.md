@@ -1,1 +1,1 @@
-The [[possible]] within the [[impossible]]. The link between [[essence]] and [[existence]]. One of the six fundamental laws
+The [[possible]] within the [[impossible]]. The link between [[essence]] and [[Dramatic Universe Series/Glossary (Bennett)/existence]]. One of the six fundamental laws

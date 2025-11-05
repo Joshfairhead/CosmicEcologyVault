@@ -1,1 +1,1 @@
-The fourth and highest of the natural values. Joy is the first of the three goals of human [[existence]] called [[Sukha]], [[Santash]] and [[Shanti]].
+The fourth and highest of the natural values. Joy is the first of the three goals of human [[Dramatic Universe Series/Glossary (Bennett)/existence]] called [[Sukha]], [[Santash]] and [[Shanti]].
